@@ -1,1 +1,1 @@
-# rsschool-cv
+https://khalkhalyan.github.io/rsschool-cv/cv
